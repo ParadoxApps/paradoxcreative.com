@@ -1,4 +1,4 @@
-Paradox-v3
+Paradox — A Mobile & Web Firm founded by Ty Richards
 ==========
 
-Paradox v3
+info@paradoxsites.com
